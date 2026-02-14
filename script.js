@@ -1,6 +1,3 @@
-// Valentine's Day Website - Bouquet First Layout
-
-// Love Letter Text
 const loveLetterText = `
 Hello, Maureen
 
