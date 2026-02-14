@@ -3,7 +3,7 @@ Hello, Maureen
 
 Happy Hearts Day <3
 
-Hindi talaga ako sanay gumawa ng ganito eh hahahaha 1st time lang talaga ako gumawa ng mga ganitong bagay-bagay. To be honest mahiyain ako and andaming times na gusto kitang makausap pero nahihiya talaga ako kaya mga stickers na lang pinagsesend ko hahhahaha and ilang beses ko na rin sinabi sa sarili ko na sige today kakausapin na kita pero pag nandiyan na yung moment hindi ko na gagawin.
+Hindi talaga ako sanay gumawa ng ganito eh hahahaha 1st time lang talaga ako gumawa ng mga ganitong bagay-bagay. To be honest mahiyain ako and andaming times na gusto kitang makausap pero nahihiya talaga ako hahhahaha and ilang beses ko na rin sinabi sa sarili ko na sige today kakausapin na kita pero pag nandiyan na yung moment hindi ko na gagawin.
 
 Hindi dahil sa wala akong gustong sabihin. kundi dahil gusto kong maayos ko ang mga sasabihin ko. I wanted to make sure na tama at sincere ang lahat ng salita ko, lalo na pag tungkol sa nararamdaman ko sa iyo. Although I am not the most confident person, ngayon gusto ko lang maging honest. I like you. This is not much, simple lang ito, pero I really hope you like it. 
 
