@@ -1,7 +1,10 @@
 // Valentine's Day Website - Bouquet First Layout
 
 // Love Letter Text
-const loveLetterText = `Hello, Maureen
+const loveLetterText = `
+Hello, Maureen
+
+Happy Hearts Day <3
 
 Hindi talaga ako sanay gumawa ng ganito eh hahahaha accurately 1st time lang talaga ako gumawa ng ganitong mga bagay-bagay. To be honest mahiyain ako and andaming times na gusto kitang makausap pero nahihiya talaga ako kaya mga stickers na lang pinagsesend ko hahhahaha and ilang beses ko na rin sinabi sa sarili ko na sige today kakausapin na kita pero pag nandiyan na yung moment hindi ko na gagawin.
 
